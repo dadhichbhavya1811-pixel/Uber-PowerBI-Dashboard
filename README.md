@@ -150,13 +150,8 @@ This dashboard enables stakeholders to:
 
 **Bhavya Dadhich**
 
-🎓 M.Sc. IT (2025–2026)
+📧 Email:dadhich.bhavya1811@gmail.com
 
-📧 Email: your-email@example.com
-
-💼 LinkedIn: https://linkedin.com/in/your-linkedin
-
-🐙 GitHub: https://github.com/yourusername
 
 ---
 
